@@ -30,6 +30,10 @@
 * If using 'he' is sexist, so is using 'she.' If using 'he or she' makes someone say someone hasn't been counted, I say he has been counted twice. To those who advocate the expression 'women and men' I ask if they ever had a problem with 'ladies and gentlemen.' And while on this matter, I also ask if describing earth, nature, or countries as feminine is sexist too.
 * Language reformers do not seek equality, they seek power. They lost me when they politicized pronouns. I don't use 'she' to mean 'he or she'. I don't subscribe to the nonsense of keeping track of how many 'he's and 'she's I've used. I don't use 'they' in a singular form.
 
+## 6. Deadnaming
+
+* Here's a [top-notch contender for Oppression Olympics](/source%20files/How%20to%20Discuss%20a%20Person's%20Transition%20in%20a%20Respectful%20Way.html). Fake professor of fake studies&mdash;we are but normal people; spare us!
+
 ---
 
 *Created on 2020-Dec-13. Last updated on 2020-Dec-14.* 
