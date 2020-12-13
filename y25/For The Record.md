@@ -32,7 +32,7 @@
 
 ## 6. Deadnaming
 
-* Here's a [top-notch contender for Oppression Olympics](/source%20files/How%20to%20Discuss%20a%20Person's%20Transition%20in%20a%20Respectful%20Way.html). Fake professor of fake studies&mdash;we are but normal people; spare us!
+* Here's a [top-notch contender for Oppression Olympics](https://lifehacker.com/what-is-deadnaming-and-how-to-avoid-it-1845802589?utm_source=pocket-newtab-intl-en). Fake professor of fake studies&mdash;we are but normal people; spare us!
 
 ---
 
