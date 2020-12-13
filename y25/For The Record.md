@@ -36,5 +36,5 @@
 
 [![CC BY-SA 4.0][cc0-image]][cc0]
 
-[cc0]: https://raw.githubusercontent.com/13saints/animated-goggles/main/LICENSE
+[cc0]: https://raw.githubusercontent.com/13saints/licenses/main/CC0.txt
 [cc0-image]: https://licensebuttons.net/l/zero/1.0/88x31.png
