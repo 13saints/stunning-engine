@@ -22,7 +22,13 @@
 
 * Feminism: all rights, no responsibility.
 * *Men + Women v Nature* far better describes the human condition than *Men v Women*. Both sexes have to contribute, each faces his or her own set of challenges, and in the long-term neither wins unless the other wins too. Furthermore, women's welfare cannot be achieved without a certain prerequisite amount of men's welfare, for men must provide for their families, and women's welfare is a downstream effect of this provision. 
-* Note that in societies in which women face widespread oppression, men aren't exactly leading enviable lives. Lives of both men and women could use some amelioration. 
+* Note that in societies in which women face widespread oppression, men don't exactly lead enviable lives. Both could use some improvement.
+
+## 5. Language
+
+* I used the singular 'they' instead of 'he' or 'he or she' for many years. In fact, I began using it before it became popular. 
+* If using 'he' is sexist, so is using 'she.' If using 'he or she' makes someone say someone hasn't been accounted for, I say he has been accounted for twice. To those who advocate the expression 'women and men' I ask if they ever had a problem with 'ladies and gentlemen.' And while on this matter, I also ask if describing earth, nature, or countries as feminine is sexist too.
+* Language reformers do not seek equality, they seek power. They lost me when they politicized pronouns. I use 'she' when it is appropriate to do so. I don't subscribe to the nonsense of keeping track of how many 'he's and 'she's I've used. And absolutely no singular 'they.'
 
 ---
 
