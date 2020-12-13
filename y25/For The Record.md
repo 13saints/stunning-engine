@@ -13,13 +13,9 @@
 * Do not miss out the fact that our---let's say---tribal proclivities are going nowhere, and for good evolutionary reasons.  Do not expect to compel people to give up their identity and associate with those far away physically and culturally, and simultaneously expect this arrangement to be stable. 
 * Advocates of globalism who insist that nationalism is a threat should also recognize that globalism is unsustainable without nationalism. A group can expand in a stable way only if its subsets are stable. In this case, if a disturbance occurs, the group can backtrack to the next largest subset. A group that expands by disregarding the needs of its subsets, on the other hand, risk a more damaging disintegration if a disturbance of significance takes place. 
 
+---
 
-
-
-
-
-
-*Created on 2020-Dec-13*
+*Created on 2020-Dec-13.*
 
 
 [![CC BY 4.0][cc-by-shield]][cc-by]
