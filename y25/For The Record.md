@@ -61,4 +61,4 @@
 
 *Created on 2020-Dec-13. Last updated on 2020-Dec-16.* 
 
-[![Kakashi Public License Affirmed](https://github.com/13saints/licenses/blob/main/logos/KPLv1.0-affirmed-medium.png)](https://raw.githubusercontent.com/13saints/licenses/main/KPLv1.0.txt)
+[![Kakashi Public License v1.0 Affirmed](https://github.com/13saints/licenses/blob/main/logos/KPLv1.0-affirmed-medium.png)](https://raw.githubusercontent.com/13saints/licenses/main/KPLv1.0.txt)
