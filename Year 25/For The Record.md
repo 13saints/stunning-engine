@@ -56,13 +56,13 @@
 
 * I think I have found the watch of a lifetime. It's the Slow Mo 02. I bought it in mid 2018 after lusting after it for three years. Then I kept it tucked away for two more years. One battery change and a band shortening later, I am wearing it daily.
 
-   ![slow Mo 02](/slow-Mo-02.jpg) 
+   ![slow Mo 02](https://raw.githubusercontent.com/13saints/taurean-stance/main/Year%2025/slow-Mo-02.jpg) 
 
 * Love everything about it. This wait has made me truly appreciate how beautiful the watch is. I like square cases, but not square dials. I like round dials, but not round cases. This round dial in an octagonal case brings me the combination I want plus more.
 
 * Here are the details. The 100 m water resistance aspect is great to know, but I'm never going to test it. The battery did not last me 45 months (lasted around 24 months). Not sure if that's cause for concern. 
 
-  ![Slow Mo 02 details](/slow-Mo-02-details.png) 
+  ![Slow Mo 02 details](https://raw.githubusercontent.com/13saints/taurean-stance/main/Year%2025/slow-Mo-02-details.PNG) 
 
 * I also like the clean design of Slow Mo. Slow Jo gets too busy for me. 
 
