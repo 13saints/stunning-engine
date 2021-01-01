@@ -76,7 +76,7 @@
 
 ## 13.  For you...
 
-* Don't say to your child "I gave up <my dream> for you." That's blaming your child for your failure.
+* Don't say to your child "I gave up \<my dream> for you." That's blaming your child for your failure.
 * You might mean to say your child is more special than that dream. Or that you are sincerely dedicated to his well being, that you have worked very hard to afford him what he has. But that won't be communicated. Instead what will be communicated is that your child is to blame for your shattered dreams. 
 * Taking care of your child and succeeding at your dream&mdash;that's your job. Not either one, but both. 
 * And what the hell would you be communicating? That your child should give up his dreams too? That he should be your slave because you sacrificed for him?
